@@ -19,4 +19,4 @@ Trovate la playlist in formato mp3 a [questo](https://drive.google.com/drive/fol
 
 Un caro abbraccio ❤️
 
-![Jon Sa Trinxa](/../main/files/Jon Sa Trinxa.jpg)
+![Image](/files/JonSaTrinxa.jpg)
