@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "B&B Albi Chillout Special"
-date:   2022-05-16 18:00:00 +0200
+date:   2022-05-16 17:30:00 +0200
 categories: playlist
 ---
 
@@ -18,3 +18,5 @@ A chi c'era, vorrei dire che non mi scorderò mai di ogni momento passato assiem
 Trovate la playlist in formato mp3 a [questo](https://drive.google.com/drive/folders/1KhXugy8psSuVG4T3LM3Hb6N754GlJt9h?usp=sharing) link:
 
 Un caro abbraccio ❤️
+
+![Jon Sa Trinxa](/../main/files/Jon Sa Trinxa.jpg)
