@@ -11,7 +11,7 @@ la scorsa settimana è venuto a mancare uno dei massimi esponenti della musica d
 Nasce in Grecia nel 1943 e si approccia alla musica in modo completamente autodidatta, rifiutandosi di prendere lezioni di qualsiasi materia di stampo musicale. 
 Come molti musicisti che hanno la fortuna di vivere la sua epoca, rimane folgorato dalle potenzialità della musica elettronica, la quale sarà una costante di tutta la sua produzione musicale.
 
-A 18 anni si procura un organo Hammond e fonda il gruppo pop greco dei _The Forminx_, raccogliendo un discreto successo in tutta Europa nonostante alcune scelte stilistiche discutibili (il loro album di maggior successo è una raccolta di canzoni di Natale...).
+A 18 anni si procura un organo Hammond e poco dopo fonda il gruppo pop greco dei _The Forminx_, raccogliendo un discreto successo in tutta Europa nonostante alcune scelte stilistiche discutibili (il loro album di maggior successo è una raccolta di canzoni di Natale...).
 A seguito del colpo di stato dei colonnelli in Grecia nel 1967, Vangelis decide di trasferirsi a Londra. Proprio lì fonda il gruppo progressive-rock degli _Aphrodite's Child_ e comincia a pubblicare diversi dischi con (nientepopodimenoché) l'allora cantante degli Yes, Jon Anderson, sotto il nome di _Jon & Vangelis_.
 In questa fase (siamo a cavallo degli anni '70) il suo genere è principalmente un progressive con forti contaminazioni elettroniche, ma mantiene ancora gli schemi dell'epoca senza particolari stravolgimenti.
 
