@@ -28,6 +28,7 @@ Come dicevo all'inizio, Kapustin è rimasto praticamente ignoto nel mondo occide
 Purtroppo, il caro Nikolai Kapustin ci ha lasciato il 2 luglio di due anni fa.
 
 Trovate la playlist a questo [link](https://open.spotify.com/playlist/50RwAejLHgpGx4mRJgHYzw?si=135eccb3e3c64427), spero vi piaccia! 
+
 Nel frattempo, vi mando un caro abbraccio da oltreoceano ❤️
 
 ![Image](/files/Pitts.jpg)
