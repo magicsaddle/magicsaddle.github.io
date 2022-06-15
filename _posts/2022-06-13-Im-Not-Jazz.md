@@ -21,7 +21,7 @@ Diciamo che, in quanto a semplicità formale, è agli antipodi rispetto a un pez
 
 Il risultato è a mio avviso incredibile: sembra di ascoltare delle improvvisazioni. Essendo scritte e studiate, hanno un livello di rifinitura e complessità assolutamente inarrivabile per una produzione musicale improvvisata sul momento. Se vi era piaciuto Gershwin e in generale avete un certo debole per le seduzioni ritmiche del Jazz, lo apprezzerete moltissimo. Giustamente, Kapustin rifiutava categoricamente di essere classificato come compositore Jazz, dando la spiegazione più semplice e ovvia: niente della sua produzione è lasciato all'improvvisazione.
 
-Secondo me Kapustin è la prima risposta da dare a chi sostiene che Giovanni Allevi abbia innovato e rinfrescato la musica classica: il nostro amico riccioluto è arrivato circa mezzo secolo dopo...
+Secondo me Kapustin è la prima risposta da dare a chi sostiene che Giovanni Allevi abbia innovato e rinfrescato la musica classica: le opere del nostro amico riccioluto sono arrivate circa mezzo secolo dopo...
 
 Come dicevo all'inizio, Kapustin è rimasto praticamente ignoto nel mondo occidentale, mentre è apprezzatissimo in Asia e soprattutto in Giappone. Immagino sia per una forte presenza del pianoforte (usato in modo un po' funky) nella musica pop giapponese, ma non so davvero dare una spiegazione. Solo negli ultimi anni alcuni grandi pianisti asiatici hanno cominciato a proporre in Europa brani del repertorio di Kapustin, naturalmente con enorme successo. Per esempio, il terzo studio da concerto (che trovate nella playlist) è uno dei bis classici del repertorio di Yuja Wang.
 
