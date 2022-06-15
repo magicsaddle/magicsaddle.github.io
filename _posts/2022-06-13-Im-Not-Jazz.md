@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "I'm not Jazz"
-date:   2022-06-13 19:00:00 +0200
+date:   2022-07-13 19:00:00 +0200
 categories: playlist
 ---
 
