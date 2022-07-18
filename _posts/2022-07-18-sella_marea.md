@@ -30,7 +30,7 @@ Nel primo brano della playlist trovate una triste presa di coscienza:
 
 Un caro abbraccio, mancate ❤️
 
-P.S. Riconoscerete il paesaggio in copertina dell'album dei Licantropi...
+P.S. Riconoscerete il paesaggio nella copertina dell'album dei Licantropi...
 
 [Playlist](https://open.spotify.com/playlist/4Bic86EIxISY5vMiSSyGk0?si=5679e363f8d949e4)
 
